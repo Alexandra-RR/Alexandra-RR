@@ -22,4 +22,4 @@ Driven by my passion for Conservation Biology and Climate Change, I aspire to be
 
 Through my multifaceted journey as a scientist, educator, and advocate, I remain resolute in inspiring positive change and empowering others to join the journey towards a thriving and biodiverse planet.
 
-![Alex press reporting]([https://drive.google.com/file/d/1G_EKSjbOuKa-Z1axnNwbNWA-t3B7Zx5z/view?usp=drive_link](https://i2-prod.mirror.co.uk/incoming/article30623540.ece/ALTERNATES/n615/1_Rental-Crisis.jpg)https://i2-prod.mirror.co.uk/incoming/article30623540.ece/ALTERNATES/n615/1_Rental-Crisis.jpg)
+![Alex press reporting](https://i2-prod.mirror.co.uk/incoming/article30623540.ece/ALTERNATES/n615/1_Rental-Crisis.jpg)
