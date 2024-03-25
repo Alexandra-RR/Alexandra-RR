@@ -6,9 +6,9 @@
 I am a dedicated Conservation scientist that studied Biology, with expertise in Botany and Conservation Biology, from the University of La Laguna (Canary Islands). I hold a Master's degree in Conservation Biology and I am currently pursuing a PhD in *ex situ* conservation of threatened endemic species from the Macaronesia region.
 
 I have made significant contributions to conservation research, with publications in four scientific articles and five book chapters related to a red list of threatened species from Macaronesia. Some of my relevant publications are:
-* _Characterization of ten polymorphic microsatellite loci for the threatened species *Grimmia curviseta* Bouman (Grimmiaceae, Musci)_ (<https://www.tandfonline.com/doi/abs/10.1080/03736687.2016.1183331>)
-* _*Gymnostomiella* (Pottiaceae, Bryophyta) revisited: new insights revealed by a morphometric analysis_ (<https://scholar.google.com/citations?view_op=view_citation&hl=en&user=aFMOnrEAAAAJ&citation_for_view=aFMOnrEAAAAJ:u5HHmVD_uO8C>)
-* _New bryophyte records from Macaronesia (<https://scholar.google.com/citations?view_op=view_citation&hl=en&user=aFMOnrEAAAAJ&citation_for_view=aFMOnrEAAAAJ:d1gkVwhDpl0C>)
+* Characterization of ten polymorphic microsatellite loci for the threatened species *Grimmia curviseta* Bouman (Grimmiaceae, Musci) (<https://www.tandfonline.com/doi/abs/10.1080/03736687.2016.1183331>)
+* *Gymnostomiella* (Pottiaceae, Bryophyta) revisited: new insights revealed by a morphometric analysis (<https://scholar.google.com/citations?view_op=view_citation&hl=en&user=aFMOnrEAAAAJ&citation_for_view=aFMOnrEAAAAJ:u5HHmVD_uO8C>)
+* New bryophyte records from Macaronesia (<https://scholar.google.com/citations?view_op=view_citation&hl=en&user=aFMOnrEAAAAJ&citation_for_view=aFMOnrEAAAAJ:d1gkVwhDpl0C>)
 
 ### Work experience
 I gained invaluable experience during a research stay at the Natural History Museum of London in 2015 (<https://www.nhm.ac.uk/our-science/departments-and-staff/life-sciences.html>), focusing on *in vitro* cultivation techniques for plant reintroduction.
