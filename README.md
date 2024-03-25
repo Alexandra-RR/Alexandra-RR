@@ -15,11 +15,11 @@ I gained invaluable experience during a research stay at the Natural History Mus
 
 In addition to my academic pursuits, I actively collaborated with national parks and contributed to some of their biodiversity conservation programs. I currently work as a Senior Science Technician in London, where I transmit my knowledge to the younger generation while continuing to prepare for my own future goals.
 
-![Alex and Mayor of London, 2023](https://drive.google.com/file/d/1kFqeU634ZkpYW5bVByNN0b0Xs-ea9REZ/view?usp=drive_link)
+![Alex and Mayor of London, 2023](https://i2-prod.mirror.co.uk/incoming/article30623563.ece/ALTERNATES/s615b/0_Rental-Crisis.jpg)
 
 ### My vision
 Driven by my passion for Conservation Biology and Climate Change, I aspire to become a software and AI engineer dedicated to acquiring AI knowledge for research purposes. I am deeply fascinated by the potential of AI to revolutionise various fields and I am committed to contributing to its progress. By pursuing a career in software engineering, I aim to sharpen my technical skills and develop innovative solutions that leverage AI technologies. My ultimate goal is to play a pivotal role in pushing the boundaries of research using AI and ultimately contribute to solving complex real-world problems and improving the lives of people around the world. 
 
 Through my multifaceted journey as a scientist, educator, and advocate, I remain resolute in inspiring positive change and empowering others to join the journey towards a thriving and biodiverse planet.
 
-![Alex press reporting](https://drive.google.com/file/d/1G_EKSjbOuKa-Z1axnNwbNWA-t3B7Zx5z/view?usp=drive_link)
+![Alex press reporting]([https://drive.google.com/file/d/1G_EKSjbOuKa-Z1axnNwbNWA-t3B7Zx5z/view?usp=drive_link](https://i2-prod.mirror.co.uk/incoming/article30623540.ece/ALTERNATES/n615/1_Rental-Crisis.jpg)https://i2-prod.mirror.co.uk/incoming/article30623540.ece/ALTERNATES/n615/1_Rental-Crisis.jpg)
